@@ -7,7 +7,7 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with cloud practitioner
 - 💬 Ask me about Basic of AWS & AZURE.  
 - 📫 How to reach me: through mail - sidharthsid0707@gmail.com and contact no : 7661002446.
-- - 😄 Pronouns: U can give one
+- 😄 Pronouns: U can give one
 - ⚡ Fun fact: I can't work without music
 -->
 
